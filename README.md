@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Wordpress .<br>I'm currently learning more about Programming.<br>>Ask me about Flutter or any tech-related stuff.<br>How to reach me: Email - madhukote1@gmail.com <br>Pronouns: He/His<br>Fun fact: I spend almost 12 hours listening to songs every day.<br>
+I'm currently working on Wordpress .<br>I'm currently learning more about Programming.<br>>Ask me about Flutter or any tech-related stuff.<br>How to reach me: Email - @gmail.com <br>Pronouns: He/His<br>Fun fact: I spend almost 12 hours listening to songs every day.<br>
 
 
 ## 🌐 Socials:
