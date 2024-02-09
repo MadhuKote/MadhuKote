@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Frontier.<br>I'm currently learning more about BlockChain.<br>I'm looking to collaborate on Youtube.<br>I'm looking for help with Velocity documentation.<br><br>Ask me about Flutter or any tech-related stuff.<br>How to reach me: Twitter - @imthepk, Youtube - @hellocodepur<br>Pronouns: He/His<br>Fun fact: I spend almost 12 hours listening to songs every day.<br>
+I'm currently working on Wordpress .<br>I'm currently learning more about Programming.<br>>Ask me about Flutter or any tech-related stuff.<br>How to reach me: Email - madhukote1@gmail.com <br>Pronouns: He/His<br>Fun fact: I spend almost 12 hours listening to songs every day.<br>
 
 
 ## 🌐 Socials:
